@@ -6,7 +6,7 @@
 - 🧬 Biology Buff: Interested in medical and scientific applications.
 - 📱 iPhone User: Stuck in the Apple 🍎 ecosystem and unlikely to leave.
 - 🌲 Outdoor Adventurer: Always up for a hike or any outdoorsy fun.
-- ⚖️ Equality Advocate: Believer in equality for all..
+- ⚖️ Equality Advocate: Believer in equality for all.
 
 
 <!---
